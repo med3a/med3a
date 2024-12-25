@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @med3a
-- ✨ I’m interested in computers, space, physics, mathematics and much more! Basically anything in science!
+- ✨ I’m interested in computers, space, bioengineering, biology, chemistry, physics, mathematics and much more! Basically anything in science!
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: ...
 
